@@ -1,1 +1,1 @@
-https://yaosipovpavel.github.io/NeonShop/
+https://astergumi.github.io/NeonShop/
