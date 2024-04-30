@@ -1,1 +1,1 @@
-https://astergumi.github.io/NeonShop/
+https://osipovtwelve.github.io/NeonShop/
